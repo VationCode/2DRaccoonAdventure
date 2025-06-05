@@ -11,3 +11,5 @@
 내용 : PPT 링크 참조 ↓↓↓↓↓
 
 [https://drive.google.com/drive/folders/19nw9n0EzWHuEKpcP4SspP263lv9VXfWg?usp=share_link](https://drive.google.com/drive/folders/1GSzQuWxKr6_5eZTfiryPaVrQVFLApeQ6)
+
+https://youtu.be/uxkpHhm1i_8
